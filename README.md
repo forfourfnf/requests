@@ -4,7 +4,10 @@ So basically this is where i will take requests to put in a mod you may like! Cr
 
 # Exceptions
 
-If it's a mod about a creepypasta or 18+ content such as gore, s#x, and anything else that reveals too much, I'm not taking it.
+If it's a mod about a creepypasta or 18+ content such as gore, s#x, and anything else that reveals too much, I'm not taking it. Like for example:
+Mario's Madness
+Sonic.exe
+I'm not taking those requests no matter how much of a banger they are
 
 "But FNF is not for kids"
 
