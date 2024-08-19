@@ -28,6 +28,8 @@ I know that, but as long as it dosen't show too much, then i'll look into it and
 
 4: If an issue is closed, that means that i have that request in and finished it.
 
+5: JUST LEARNED HOW TO PORT MODS TO HTML5 LET'S FREAKING GOOOO! also, if you have a request, leave a link to the source code and i'll see what's up. If there isn't one, then i'll have to make an alternative.
+
 With all that out of the way,
 
 # SEND ME SOME MODS!
